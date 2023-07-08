@@ -1,0 +1,18 @@
+# Le civiltà nel mondo di [Veridion](Readme.md)
+
+### Gli Altai
+Gli Altai sono una civiltà di umanoidi con ali, simili ad angeli, che abitano nelle altezze delle terre fluttuanti. Il loro habitat naturale sono le città sospese tra le nuvole, dove hanno costruito sontuosi palazzi e templi. Gli Altai sono noti per i loro valori morali di purezza, nobiltà e spirito di servizio. Sono una società altamente organizzata, con una struttura politica gerarchica basata sulla saggezza e l'elevazione spirituale. Credono che l'universo sia stato creato dai Guardiani come un dono divino per mantenere l'armonia e la magia, e venerano questi potenti esseri come guardiani del loro mondo.
+##### Mito della creazione degli Altai
+ Gli Altai credono che inizialmente ci fosse solo un vuoto senza fine, finché i Guardiani non si sono risvegliati dall'eterno sonno. I Guardiani, con il loro potere elementale, hanno plasmato le terre fluttuanti e infuso l'energia vitale, creando così Veridion. Secondo il mito, i Guardiani hanno anche donato agli Altai le ali come simbolo della loro grazia e nobiltà, affidando loro il compito di preservare e proteggere la magia dell'universo.
+
+### I Nimbali
+I Nimbali sono una civiltà di umanoidi che abitano le terre fluttuanti più basse, immerse in una nebbia eterna. La loro fisionomia è caratterizzata da una pelle luminosa e adattamenti per muoversi agilmente tra la nebbia, come occhi ipersensibili alla luce e arti snelli. Gli Nimbali attribuiscono grande importanza all'equilibrio e all'armonia con l'ambiente naturale. Vivono in comunità cooperative e basano le loro decisioni su consensi collettivi. Considerano la natura come un essere vivente e sacro, e si dedicano alla protezione e alla cura degli ecosistemi delle terre fluttuanti.
+##### Mito della creazione dei Nimbali
+ Secondo il mito dei Nimbali, le terre fluttuanti erano un'entità sconosciuta immersa nella nebbia primordiale. Nell'oscurità, gli occhi dei Guardiani si aprirono e dalla loro vista scaturì la luce, creando così le terre fluttuanti di Veridion. I Nimbali credono che sia compito loro proteggere e curare la luce donata dai Guardiani, mantenendo l'equilibrio e la saggezza necessari per vivere in armonia con l'universo.
+
+### Gli Erebi
+Gli Erebi sono una civiltà di umanoidi che abitano le terre fluttuanti più oscure e misteriose, dove le ombre e la notte dominano. La loro pelle è di colore scuro e hanno occhi luminescenti che si adattano al buio. Gli Erebi sono noti per la loro abilità nell'arte dell'illusionismo e dell'incantesimo, e attribuiscono grande importanza alla conoscenza e alla saggezza. La loro società è organizzata in una struttura meritocratica, in cui il potere è assegnato a coloro che dimostrano abilità magica e intelligenza.
+##### Mito della creazione degli Erebi
+ Gli Erebi credono che l'universo sia stato creato dalle ombre stesse, prima ancora dell'arrivo dei Guardiani. Secondo il loro mito, il mondo era un luogo di oscurità e caos fino a quando le ombre si sono unificate e hanno donato alla vita la possibilità di esistere. Gli Erebi considerano le ombre come un elemento di equilibrio e potere, e cercano di utilizzarle saggiamente per preservare la magia e l'armonia di Veridion.
+
+Queste tre civiltà, con le loro diverse credenze e valori, contribuiscono a rendere Veridion un mondo ricco di diversità e sfumature. Ognuna di esse porta con sé la sua prospettiva unica sull'universo e la sua connessione con la magia e l'armonia delle terre fluttuanti.
